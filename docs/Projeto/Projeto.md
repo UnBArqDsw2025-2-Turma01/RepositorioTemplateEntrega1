@@ -1,4 +1,4 @@
-** Projetos - Período   2025.1
+** Projetos - Período   2025.2
 
 Segue a lista de projetos desse período letivo:
 
